@@ -1,0 +1,8 @@
+- Hi, I’m @Joaov2099
+- I'm interested in programming and love playing volleyball.
+- I’m currently learning mangás, manhuas and manhwas.
+- You can reach me on instagram (@joriitoo) which is the social network I use the most.
+- My passion for programming is something that I came to love after participating in a programming olympics and I'm enjoying it more and more. 
+- But I'm not very good and I don't know where to start studying. 
+- If you can send me books, courses, videos and e-books so that I can find my way around, I would be very grateful. 
+- I always try to learn more and this also serves to improve my English, which is very bad nowadays.
